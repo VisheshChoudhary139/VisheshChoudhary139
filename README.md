@@ -37,17 +37,17 @@ I’m a Computer Science undergrad at KIIT with a knack for blending **technical
 ---
 
 🏆 **Achievements & Leadership**
-- 👨‍💼 **Core Member & Tech Lead – Kronicle**  
-  Led web projects and mentored juniors in tech and communication.
+- 👨‍💼 **Core Member & Lead – Kronicle**  
+  Led web projects and mentored juniors in debate and communication.
   
-- 💼 **Marketing & Outreach Lead – Founder's Cup**  
+- 💼 **Marketing & Outreach Lead – Founder's Cup & Pratijja**  
   Managed outreach strategies for one of KIIT's biggest events.
 
 - 🧠 **Senior Executive – PR & Finance, FED**  
-  Organized and promoted startup events, handling both outreach and sponsorship.
+  Organized and promoted startup events like Omega , handling both outreach ,sponsorship and Finance.
 
 - 🌱 **Ex-Social Entrepreneur – Enactus KIIT-KISS**  
-  Worked on sustainable, tech-integrated business models.
+  Worked on sustainable, environment- friendly business models.
 
 ---
 
